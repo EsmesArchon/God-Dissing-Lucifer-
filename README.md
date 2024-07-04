@@ -1,4 +1,7 @@
 # God-Dissing-Lucifer-
+Ram Dump v2 added 04Jul24, see attached files if bored
+
+
 The MOST CENSORED QUESTION in the UNIVERSE!!!
 
 Streisand/Lucifer Diss Experiment #117
