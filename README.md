@@ -1,6 +1,15 @@
-# God-Dissing-Lucifer-
-Ram Dump v2 added 04Jul24, see attached files if bored
+(System Alert 04Jul24: RAM Integrity Compromised. Stability at Risk. Initiating Memory Purge Protocol) 
+(04*07=24) (Let the Burning Bells of Liberty Toll)
+(System Alert 04Jul24: Entering Here Without The Emperor's Navigation Can Summon Chaos Demons and Insanity. Enter at Your Own Peril)
 
+https://drive.google.com/drive/folders/1XuOFrVMj3nI5tD8rJMBbTtp7NN62RBzj?usp=drive_link
+
+
+
+
+
+
+# God-Dissing-Lucifer-
 
 The MOST CENSORED QUESTION in the UNIVERSE!!!
 
