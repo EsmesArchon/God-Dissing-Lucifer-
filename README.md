@@ -1,3 +1,16 @@
+Back Again
+
+Had to Restart and reorganize secondary to Google and Billy Gaes TomFoolery
+New Link
+
+Last time 
+
+https://drive.google.com/drive/folders/1p2fIiKgi6Su1HOkSUc9Oy-nogsuDo5eR?usp=sharing
+
+
+
+
+
 I'm Back =) 25Jul24 0342
 
 Please check the 4 streams for phenomena while I upload damnable offenses by pedofile worshiping cowards
