@@ -1,3 +1,21 @@
+FTF
+
+Last Last Link Change 08Aug24
+
+Luciferian Elite Thought Experiment (New “Organized” GDrive) 08Aug24
+
+https://drive.google.com/drive/folders/1-G3q9lLebRzSGcAHC59n6ux0Oy3ouc78?usp=sharing
+
+FTF  RAM (My Random Journal that I Jot Down my Lunatic Ideas in (After 03AUG24) 
+
+https://docs.google.com/document/d/1-TixIAp0YfaPshFUdpdEjBUYjQ0vDosK/edit?usp=drive_link&ouid=101129897037363429726&rtpof=true&sd=true
+
+
+
+
+
+
+
 Back Again
 
 Had to Restart and reorganize secondary to Google and Billy Gaes TomFoolery
