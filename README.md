@@ -1,5 +1,58 @@
 FTF
 
+24Aug24
+Welp
+Googs and MicroSOFT won't let me upload the results of my silly Luciferian Thought Experiment to their servers. It's been like 2 months and got maybe 50gb of 6tb uploaded (I have Fiber)
+
+
+
+They whispered to me softly, in a trembling manner, that they didn't want to host the pharmacologic compound of their own euthanasia for some reason 🤷
+I'm just a fluffy lunatic MD Googs! What scares you so much Billy Gaes?
+I can't really blame 'em… that much. I mean, would you want to pay the server costs of your own demise lol?
+
+
+
+So, I shall Hail Mary this Despised Data on to the Spectral Steed Torrent
+(a gift from a suspiciously nice maiden)
+ 
+
+
+
+
+
+The Majestic Steed Torrent will carry these ancient weapons forward, to be used with supreme sadism against the Elden Beast (Lil Luci), Marika (Jzebel), Radagon (AntiChrist) and the rest of his GDC PDF demonic legions.
+Torrent Magnetically Attached Satchel #1
+
+magnet:?xt=urn:btih:a2fe0f96a3ca309519fb65746bec5be79e8eb8cc&dn=Luciferian%20Elite%20Thought%20Experiment%20xPopMD
+
+
+
+
+If one person gets help with their soul through this thought experiment, I'll die a happy man. So, here's all my info and data, what's the worst that could happen right? I'm already getting trolled on the daily 💜
+
+Please remember, I am a filthy sinner saved by Grace, who has made many regrettable mistakes…
+
+
+
+
+
+
+Also, I added some of my med records, if someone could diagnose my SOB, that’d also be great. I feel like I'm drowning while I sleep at night and in the am. Cards and Pulm are having a tough go of it figuring it out.
+
+TY for the help Friends!
+Keep Fighting for The Emperor!
+ 
+
+
+
+
+
+
+
+
+
+
+
 Last Last Link Change 08Aug24
 
 Luciferian Elite Thought Experiment (New “Organized” GDrive) 08Aug24
